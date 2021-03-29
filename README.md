@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Jezyprogremmer
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning python and c#
+- 💞️ I’m looking to collaborate on my acc
+- 📫 How to reach me..........
